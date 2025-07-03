@@ -1,9 +1,6 @@
 ## **Hi there 👋**
 I'm Eche-de-Coder! aka Chris Arts😁
 
-*Passionate about building beautiful web experiences*
-
-
 
 ## 🌟 **About Me**
 
